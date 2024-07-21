@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mohamed-Haneef
+- I’m @Mohamed-Haneef
 - 👀 Developing since 2023
 - 🤝 Open for freelancing.
 - 📫 email: mohamedhaneef8444@gmail.com
